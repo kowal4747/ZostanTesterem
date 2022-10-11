@@ -1,1 +1,2 @@
 # ZostanTesterem
+Mysl Merytokratycznie. 
